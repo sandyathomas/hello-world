@@ -13,6 +13,12 @@ I have been all around the world:
 * Canada
 * Saudi Arabia
 
+Visited:
+* Australia
+* USA
+* Singapore
+* England
+
 What I like to eat:
 
 1. Junk
